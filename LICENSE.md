@@ -1,4 +1,4 @@
-# 
+# Profissional MEV sniper bot plugins para Mac OS | Turbo MEV sniper bot plugins para PC Windows. Com rasteamento de preços e análise de dados históricos — otimizado para máximo desempeño en cada plataforma.
 
 
 
